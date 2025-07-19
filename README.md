@@ -20,7 +20,7 @@ I have basic to intermediate knowledge of:
 ---
 
 ## 📄 Resume
-[Download Resume](./resume.pdf)
+[Download Resume](./kiran.resume.pdf)
 
 ---
 
