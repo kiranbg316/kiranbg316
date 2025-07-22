@@ -27,6 +27,7 @@ I have basic to intermediate knowledge of:
 ## 📬 Contact Me
 - LinkedIn: [Kiran Gode](https://www.linkedin.com/in/kiran-gode-311322197)
 - Email: kiranbgode@gmail.com
+- X:https://x.com/kiran__eth
 
 ---
 
